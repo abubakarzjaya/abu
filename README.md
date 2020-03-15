@@ -1,0 +1,2 @@
+# abu
+pengen belajar
